@@ -1,1 +1,1 @@
-My goal
+God is great
